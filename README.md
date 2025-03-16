@@ -1,2 +1,5 @@
-# Katja-mihaylova-
-Mihaylova
+  Katja Mihaylova 
+   Schulbildung  
+   praktische Erfahrungen 
+   Weitere  Kenntnisse  
+   Hobbys und Interessen 
